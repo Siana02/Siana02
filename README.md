@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any innovative projects
 - 📫 Reach me via email @sianaanyango@gmail.com 
 - 😄 I look forward to connecting with you
-- Love, Siana.
+- 🩷 Love, Siana.
 
 <!---
 Siana02/Siana02 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
